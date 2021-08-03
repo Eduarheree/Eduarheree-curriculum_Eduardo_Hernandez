@@ -1,0 +1,1 @@
+Curriculum de Edaurdo Hernández Reyes
