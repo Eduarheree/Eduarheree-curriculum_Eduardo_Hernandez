@@ -1,1 +1,1 @@
-Curriculum de Edaurdo Hernández Reyes
+Curriculum de Eduardo Hernández Reyes
